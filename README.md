@@ -1,0 +1,3 @@
+- 👋 Hi, we're @schraderauction
+- 🌱 We are a nationwide Real Estate and auction firm
+- 📫 More info on our website at https://www.schraderauction.com
